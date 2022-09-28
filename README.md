@@ -21,4 +21,4 @@
 * [<img alt="Dunia-Kode's Whatsapp" align="left" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/whatsapp.svg" /> <b>WhatsApp</b>](https://wa.me/19725344955)<br />
 
 ![template_s](https://user-images.githubusercontent.com/114341732/192856136-06f57371-e473-4c04-ae38-7c52a9e86525.jpg)
-![template_s](https://user-images.githubusercontent.com/114341732/192856136-06f57371-e473-4c04-ae38-7c52a9e86525.jpg)
+![template_s](https://user-images.githubusercontent.com/114341732/192856146-808e40a6-c0e3-42ba-a50d-46a4121752ef.jpg)
