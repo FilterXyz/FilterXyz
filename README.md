@@ -20,4 +20,5 @@
 * [<img alt="Dunia-Kode's Github" align="left" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/github.svg" /> <b>Github</b>](https://github.com/FilterXyz)<br />
 * [<img alt="Dunia-Kode's Whatsapp" align="left" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/whatsapp.svg" /> <b>WhatsApp</b>](https://wa.me/19725344955)<br />
 
-![template_s](https://github.com/4NK3R-PRODUCT1ON/4NK3R-PRODUCT1ON/blob/main/1598653706079.png)
+![template_s](https://user-images.githubusercontent.com/114341732/192856136-06f57371-e473-4c04-ae38-7c52a9e86525.jpg)
+![template_s](https://user-images.githubusercontent.com/114341732/192856136-06f57371-e473-4c04-ae38-7c52a9e86525.jpg)
